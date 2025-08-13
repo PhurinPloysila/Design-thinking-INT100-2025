@@ -1,3 +1,1 @@
-# Design-thinking-INT100-2025
-
-tonpee 68130500082
+# design-thinking-INT100-2025
