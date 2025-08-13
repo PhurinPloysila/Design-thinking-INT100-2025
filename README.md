@@ -1,3 +1,1 @@
-# Design-thinking-INT100-202
-
-JUBJUB 80 😚
+# design-thinking-INT100-2025
